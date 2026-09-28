@@ -1,1 +1,1 @@
-<img width="331" height="294" alt="31f9173e35744bd1fc23bc4d67d0347f_40" src="https://github.com/user-attachments/assets/8e40d9de-3ee4-4244-bd6b-46fb0ffea0ef" />
+https://cdn.discordapp.com/attachments/1390907065136054304/1553874891160428685/IMG_9081.jpg?ex=6abad643&is=6ab984c3&hm=3dd3533aba1fc61aadf41438fef72def214ea818a5a65c51c962bf81e4abaf6d&
