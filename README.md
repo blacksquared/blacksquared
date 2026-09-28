@@ -3,7 +3,5 @@
 
 
 
-my pokemon
 
-
-[art](https://listography.com/mewgenics)
+my pokemon [art](https://listography.com/mewgenics)
